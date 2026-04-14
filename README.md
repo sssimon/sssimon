@@ -38,7 +38,7 @@ APIs          Binance · Bybit · CoinGecko · Telegram
 
 ## Fuera del código
 
-Trabajo en estrategia de contenido y marca personal para X (Twitter) y LinkedIn — diagnóstico de perfiles, posicionamiento y creación de publicaciones.
+Soy Docente Universitario en Ingenieria Civil especialista en Transporte y Vialidad
 
 ---
 
