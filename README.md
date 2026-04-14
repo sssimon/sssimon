@@ -44,6 +44,6 @@ Trabajo en estrategia de contenido y marca personal para X (Twitter) y LinkedIn 
 
 ## Contacto
 
-- **X (Twitter):** [@SimonBallesteros](https://x.com/)
-- **LinkedIn:** [Simón Ballesteros](https://linkedin.com/)
+- **X (Twitter):** [@INGSballesteros](https://x.com/INGSballesteros)
+- **LinkedIn:** [Simón Ballesteros](https://ve.linkedin.com/in/simon-ballesteros-20926816)
 - **GitHub:** [sssimon](https://github.com/sssimon)
